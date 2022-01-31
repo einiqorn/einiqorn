@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @einiqorn
+- 👀 I’m interested in stonks.
+- 🌱 I’m currently learning stonks.
+- 💞️ I’m looking to collaborate on stonks.
